@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Even though i was a bio student in my 12th grade my intrest to the nonliving brains that is the computers was so high.This love for coding and the thirst for more knowledge made me to find what coding is. I them came to know about PYTHON and started studying it.The intrest for C LANGUAGE WAS ALSO HIGH.Now im intrested TO KNOW MORTE ABOUT COMPUTERS 
